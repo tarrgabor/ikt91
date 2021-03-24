@@ -2,4 +2,4 @@
 kapcsolat próba
 p2S
 hahaahahahahah
-wavesko goated ahahahahahahaha
+wavesko goated ahahahahahahahahahaha
